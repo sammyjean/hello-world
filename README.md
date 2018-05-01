@@ -1,5 +1,6 @@
 # hello-world
 
-I'm Sammy Jean from NYC!
+Sammy Jean from the NYC!
 
-QUE LO QUE PUTAS?! I like tacos but I'm not Mexican. 
+I really don't know what to type...
+Just trying to fill the space. Ya feel me?
